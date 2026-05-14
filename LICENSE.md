@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with shrink for brainrots Script underground, the #1 Script. Includes private server access and esp
 
 
 
